@@ -1,1 +1,1 @@
-# veylcompany.-github.-io
+# veylcompany.github.io
